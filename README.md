@@ -2,4 +2,4 @@
 
 Hi everyone!
 
-I'm technician computer science and Graphic designer.
+I'm technician computer science and graphic designer.
